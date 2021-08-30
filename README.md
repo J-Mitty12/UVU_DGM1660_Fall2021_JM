@@ -1,0 +1,2 @@
+# UVU_DGM1660_Fall2021_JM
+3D Modeling Class 2021
